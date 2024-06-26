@@ -1,4 +1,4 @@
-# AKSHAY KRISHNANA A
+# AKSHAY KRISHNA A
 
 ### Student from Louredes Matha College of Science and Technology ,Trivandrum 
 
